@@ -1,5 +1,5 @@
 ## Aristotelhs's GitHub
-If you looking for something
+Hello! Are you interested in making something for you? Then what you can do is take a look at my repositories and then contact me by finding me at the discord
 
 <p align="center">
 <a href="https://discord.bio/p/aristotelhs">
